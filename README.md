@@ -2,7 +2,7 @@
 
 
 
-# HoneyLu’s Coffee ☕🐾  
+# HoneyLu’s Coffee 
 Marketing Strategy & Persona Development
 
 ## Project Purpose
